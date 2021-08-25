@@ -12,7 +12,7 @@
 </p>
 
 <p align="center">
-  <a href="https://github.com/xznsenpai#thanks-to">Thanks to</a>
+  <a href="https://wa.me/6282256080304?text=Assalamualaikum#thanks-to">whatsapp</a>
 </p>
 </div>
 
