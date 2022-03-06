@@ -1,5 +1,5 @@
 <div align="center">
-<img src="sengaja di eror kanhttps://telegra.ph/file/64a334dba9b1ee59ab161.jpg" alt="XZNSENPAI" width="300" />
+<img src="https://telegra.ph/file/64a334dba9b1ee59ab161.jpg" alt="XZNSENPAI" width="300" />
 
 # XZNBOT
 
