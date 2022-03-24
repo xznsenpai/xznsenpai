@@ -1,5 +1,3 @@
-
-<h1 align="center">🔥 𝚆𝙴𝙻𝙲𝙾𝙼𝙴 🔥</h1>
 <p align="center">
 <h2 align="center">🔥 SPOTIFY 🔥</h2>
 <p align="center">
