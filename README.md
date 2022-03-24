@@ -6,6 +6,7 @@
 * [FFmpeg](https://github.com/BtbN/FFmpeg-Builds/releases)
 * [Visual Code](https://code.visualstudio.com)
 # Sekian Bahan Bot Di Laptop/Pc
+</div>
 ---
 
 <h1 align="center">🔥 𝚆𝙴𝙻𝙲𝙾𝙼𝙴 🔥</h1>
